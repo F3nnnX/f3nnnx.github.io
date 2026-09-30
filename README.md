@@ -1,3 +1,3 @@
 # Page temporaire
 
-QCM de cadrage seul (le projet est privé). Retiré une fois les réponses reçues.
+QCM retiré le 2026-09-30 (réponses reçues).
